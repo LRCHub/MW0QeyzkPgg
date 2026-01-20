@@ -1,4 +1,4 @@
-# CHiCO、HoneyWorks – 恋色に咲け
+# CHiCO with HoneyWorks – 恋色に咲け
 
 > **歌詞登録ステータス：同期歌詞あり**
 
